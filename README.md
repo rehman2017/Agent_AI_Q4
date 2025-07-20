@@ -2,4 +2,4 @@
 
 ### 1️⃣ Linkedin
 
-📌 [Linkedin Post Link](https://www.linkedin.com/posts/zubair-ahmed-06aa13194_smart-student-agent-assistant-class-assignment-activity-7345810195517792256-RA6O?utm_source=share&utm_medium=member_desktop&rcm=ACoAAC22XZIBQ0a5Md61VVi5F2CIGwUHTVIsTa0)
+📌 [Linkedin Post Link](https://www.linkedin.com/posts/abdul-rehman-75323b2ba_check-my-github-githubcomrehman2017-activity-7352596213784870912-Umtp?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFell88Bwen3KypbtwAEOrGV6dicdbvmFww)
